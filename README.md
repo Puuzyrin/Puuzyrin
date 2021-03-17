@@ -1,11 +1,5 @@
 - 👋 Hi, I’m @Puuzyrin
-- 👀 I’m interested in
-       Billie Jean is not my lover
-       Billie Jean is not my lover
-       Billie Jean is not my lover
-       Billie Jean is not my lover 
-       Billie Jean is not my lover
-       Billie Jean is not my lover
+- 👀 I’m interested in Billie Jean is not my lover  
 - 🌱 I’m currently learning  Billie Jean
 - 💞️ I’m looking to collaborate on  Billie Jean
 - 📫 How to reach me  Billie Jean
